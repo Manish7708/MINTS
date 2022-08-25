@@ -1,0 +1,2 @@
+# MINTS
+NFT MINTS
